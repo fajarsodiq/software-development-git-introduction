@@ -1,0 +1,1 @@
+Muhammad Fajar Sodiq (2413020016). Saya adalah mahasiswa dari Universitas PGRI Kediri, saya mengambil jurusan Teknik Informatika dikarenakan saya menyukai hal yang berbau teknologi. Saya sekarang sedang mengembangakn beberapa product 3d yang akan digunakan dalam permainan berbasis VR (Virtual Reality).
